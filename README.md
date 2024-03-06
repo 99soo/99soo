@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/754805640332836894/1198663747036778506/13883f7a0fff120eb4d3db093e85e1c2.jpg?ex=65bfb99b&is=65ad449b&hm=fa996ebfa89e826602de8751380bf6664c676c00d842d1021ea6a1267f582af1&)
+![](https://cdn.discordapp.com/attachments/754805640332836894/1209481825135894570/13883f7a0fff120eb4d3db093e85e1c2.jpg?ex=65f989ba&is=65e714ba&hm=a5e930ccf3a6a96372bf44705ec19512c007af80072afbba336cd86741f5239c&)
 <!--
 **daddy-gojo/daddy-gojo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
