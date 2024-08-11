@@ -1,4 +1,4 @@
-hi i fw satosugu and sukugo HARD
+hi i fw Satosugu and Sukugo HARD
   
   [strawpage](https://jujutsu.straw.page) 
 
