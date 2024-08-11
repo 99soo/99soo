@@ -1,4 +1,4 @@
-hi i fw Satosugu and Sukugo HARD
+hi i fw Satosugu and Sukugo HARD i also luv Sonadow
   
   [strawpage](https://jujutsu.straw.page) 
 
