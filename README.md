@@ -1,6 +1,6 @@
 hi i fw Satosugu and Sukugo HARD i also luv Sonadow and Miyusawa
 
-read kamisama no iutoori for a free skin 10% OFF!!! 
+read kamisama no iutoori for a free skin 10% OFF!!! #PEAK
   
   [strawpage](https://jujutsu.straw.page) 
 
