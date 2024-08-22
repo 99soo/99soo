@@ -1,4 +1,4 @@
-hi i fw Itafushi and Stsg HARD i also luv Sonadow and Miyusawa
+hi i fw Itafushi and Satosugu HARD i also luv Sonadow and Miyusawa
 
 read kamisama no iutoori for a free skin 10% OFF!!! #PEAK
   
