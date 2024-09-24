@@ -4,7 +4,3 @@
 
 <div align="center">
 
-
-<p align="center"> <img src="https://media1.tenor.com/m/DSdVSG9mXcMAAAAC/blue-period.gif" > </p> 
-
-<div align="center">
